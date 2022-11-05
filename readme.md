@@ -43,4 +43,4 @@ Esse projeto está sob a licença MIT.
 
 ---
 
-Feito com ♥ by Arthur :wave: [Participe da nossa comunidade!](https://discord.gg/Sy4sR7qf)
+Feito com ♥ by Arthur :wave:Se curte jogos online [Participe da nossa comunidade!](https://discord.gg/Sy4sR7qf)
